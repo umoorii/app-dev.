@@ -13,6 +13,7 @@ aboard a spaceship with no memory , a dying sun , and an impossible mission.
 
 ## Ryland Grace And Rocky Favorite Character 
 ** Ryland Grace ** - the unlikely hero , a biologist-turned savior , who wants to go home.
+
 ** Rocky ** - the alien, a lovable hilarious and deeply loyal companion
 > Rocky: Dirty, dirty, dirty, dirty, dirty. Why room so messy, question?
 Ryland Grace: Well, I wasn't expecting company, was I?

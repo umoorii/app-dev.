@@ -11,6 +11,9 @@ aboard a spaceship with no memory , a dying sun , and an impossible mission.
 - A hopeful, emotional ending
 - rocky
 
+## Rating 
+1000/10⭐⭐⭐
+
 ## Ryland Grace And Rocky Favorite Character 
 ** Ryland Grace ** - the unlikely hero , a biologist-turned savior , who wants to go home.
 
